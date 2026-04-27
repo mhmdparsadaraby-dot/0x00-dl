@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-27 23:01 (IR Time)
+- 📥 **[DNSTT-Client-v2.1.0-Windows.zip](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/DNSTT-Client-v2.1.0-Windows.zip)**
+
+
 ### 📅 2026-04-27 22:34 (IR Time)
 - 📥 **[v2rayN-linux-arm64.zip.zip](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/v2rayN-linux-arm64.zip.zip)**
 - 📥 **[v2rayN-linux-arm64.zip.z01](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/v2rayN-linux-arm64.zip.z01)**
