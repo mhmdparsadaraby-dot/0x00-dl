@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-27 18:00 (IR Time)
+- 📥 **[SNI-Spoofing_by_patterniha_v1.rar](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/SNI-Spoofing_by_patterniha_v1.rar)**
+
+
 ### 📅 2026-04-27 17:53 (IR Time)
 - 📥 **[آموزش روش جدید، رایگان و قدرتمند SNI Spoofing - اتصال بدون هزینه به اینترنت آزاد!.mp4](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%B1%D9%88%D8%B4%20%D8%AC%D8%AF%DB%8C%D8%AF%D8%8C%20%D8%B1%D8%A7%DB%8C%DA%AF%D8%A7%D9%86%20%D9%88%20%D9%82%D8%AF%D8%B1%D8%AA%D9%85%D9%86%D8%AF%20SNI%20Spoofing%20-%20%D8%A7%D8%AA%D8%B5%D8%A7%D9%84%20%D8%A8%D8%AF%D9%88%D9%86%20%D9%87%D8%B2%DB%8C%D9%86%D9%87%20%D8%A8%D9%87%20%D8%A7%DB%8C%D9%86%D8%AA%D8%B1%D9%86%D8%AA%20%D8%A2%D8%B2%D8%A7%D8%AF%21.mp4)**
 
