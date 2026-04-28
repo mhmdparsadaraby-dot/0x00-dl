@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-28 12:13 (IR Time)
+- 📥 **[hiddify-config.zip](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/hiddify-config.zip)**
+
+
 ### 📅 2026-04-28 10:25 (IR Time)
 - 📥 **[کامل ترین آموزش اکولایزر در میکس پروژه محور  ｜ اسرار اکولایزر یا EQ.mp4.zip](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/%DA%A9%D8%A7%D9%85%D9%84%20%D8%AA%D8%B1%DB%8C%D9%86%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%A7%DA%A9%D9%88%D9%84%D8%A7%DB%8C%D8%B2%D8%B1%20%D8%AF%D8%B1%20%D9%85%DB%8C%DA%A9%D8%B3%20%D9%BE%D8%B1%D9%88%DA%98%D9%87%20%D9%85%D8%AD%D9%88%D8%B1%20%20%EF%BD%9C%20%D8%A7%D8%B3%D8%B1%D8%A7%D8%B1%20%D8%A7%DA%A9%D9%88%D9%84%D8%A7%DB%8C%D8%B2%D8%B1%20%DB%8C%D8%A7%20EQ.mp4.zip)**
 - 📥 **[کامل ترین آموزش اکولایزر در میکس پروژه محور  ｜ اسرار اکولایزر یا EQ.mp4.z01](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/%DA%A9%D8%A7%D9%85%D9%84%20%D8%AA%D8%B1%DB%8C%D9%86%20%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%A7%DA%A9%D9%88%D9%84%D8%A7%DB%8C%D8%B2%D8%B1%20%D8%AF%D8%B1%20%D9%85%DB%8C%DA%A9%D8%B3%20%D9%BE%D8%B1%D9%88%DA%98%D9%87%20%D9%85%D8%AD%D9%88%D8%B1%20%20%EF%BD%9C%20%D8%A7%D8%B3%D8%B1%D8%A7%D8%B1%20%D8%A7%DA%A9%D9%88%D9%84%D8%A7%DB%8C%D8%B2%D8%B1%20%DB%8C%D8%A7%20EQ.mp4.z01)**
