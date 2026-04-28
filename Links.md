@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-28 10:22 (IR Time)
+- 📥 **[آموزش استفاده از اکولایزر ｜ shape های اکولایزر ｜ اکولایزر چطور کار میکنه؟.mp4](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D9%87%20%D8%A7%D8%B2%20%D8%A7%DA%A9%D9%88%D9%84%D8%A7%DB%8C%D8%B2%D8%B1%20%EF%BD%9C%20shape%20%D9%87%D8%A7%DB%8C%20%D8%A7%DA%A9%D9%88%D9%84%D8%A7%DB%8C%D8%B2%D8%B1%20%EF%BD%9C%20%D8%A7%DA%A9%D9%88%D9%84%D8%A7%DB%8C%D8%B2%D8%B1%20%DA%86%D8%B7%D9%88%D8%B1%20%DA%A9%D8%A7%D8%B1%20%D9%85%DB%8C%DA%A9%D9%86%D9%87%D8%9F.mp4)**
+
+
 ### 📅 2026-04-28 10:18 (IR Time)
 - 📥 **[رکوردر زوم - ZOOM H6 RECORDER.mp4](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/%D8%B1%DA%A9%D9%88%D8%B1%D8%AF%D8%B1%20%D8%B2%D9%88%D9%85%20-%20ZOOM%20H6%20RECORDER.mp4)**
 
