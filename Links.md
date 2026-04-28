@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-28 09:48 (IR Time)
+- 📥 **[از آفریقا تا مریخ، زندگی‌نامه ثروت‌مندترین آدم دنیا.mp4](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/%D8%A7%D8%B2%20%D8%A2%D9%81%D8%B1%DB%8C%D9%82%D8%A7%20%D8%AA%D8%A7%20%D9%85%D8%B1%DB%8C%D8%AE%D8%8C%20%D8%B2%D9%86%D8%AF%DA%AF%DB%8C%E2%80%8C%D9%86%D8%A7%D9%85%D9%87%20%D8%AB%D8%B1%D9%88%D8%AA%E2%80%8C%D9%85%D9%86%D8%AF%D8%AA%D8%B1%DB%8C%D9%86%20%D8%A2%D8%AF%D9%85%20%D8%AF%D9%86%DB%8C%D8%A7.mp4)**
+
+
 ### 📅 2026-04-27 23:01 (IR Time)
 - 📥 **[DNSTT-Client-v2.1.0-Windows.zip](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/DNSTT-Client-v2.1.0-Windows.zip)**
 
