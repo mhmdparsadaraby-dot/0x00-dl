@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-29 17:24 (IR Time)
+- 📥 **[آموزش VayDNS و MasterDnsVPN حتی با ضعیف ترین ریزالورها🔥.mp4](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/%D8%A2%D9%85%D9%88%D8%B2%D8%B4%20VayDNS%20%D9%88%20MasterDnsVPN%20%D8%AD%D8%AA%DB%8C%20%D8%A8%D8%A7%20%D8%B6%D8%B9%DB%8C%D9%81%20%D8%AA%D8%B1%DB%8C%D9%86%20%D8%B1%DB%8C%D8%B2%D8%A7%D9%84%D9%88%D8%B1%D9%87%D8%A7%F0%9F%94%A5.mp4)**
+
+
 ### 📅 2026-04-29 15:23 (IR Time)
 - 📥 **[بهترین سایت‌های خرید سرور ایران و خارج (واقعی و فعال).mp4](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/%D8%A8%D9%87%D8%AA%D8%B1%DB%8C%D9%86%20%D8%B3%D8%A7%DB%8C%D8%AA%E2%80%8C%D9%87%D8%A7%DB%8C%20%D8%AE%D8%B1%DB%8C%D8%AF%20%D8%B3%D8%B1%D9%88%D8%B1%20%D8%A7%DB%8C%D8%B1%D8%A7%D9%86%20%D9%88%20%D8%AE%D8%A7%D8%B1%D8%AC%20%28%D9%88%D8%A7%D9%82%D8%B9%DB%8C%20%D9%88%20%D9%81%D8%B9%D8%A7%D9%84%29.mp4)**
 
