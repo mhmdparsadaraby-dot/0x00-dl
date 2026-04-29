@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-29 15:06 (IR Time)
+- 📥 **[جواب به سوالات پرتکرار شما + بهینه ترین روش اتصال با پروتکل DNS⁉️.mp4](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/%D8%AC%D9%88%D8%A7%D8%A8%20%D8%A8%D9%87%20%D8%B3%D9%88%D8%A7%D9%84%D8%A7%D8%AA%20%D9%BE%D8%B1%D8%AA%DA%A9%D8%B1%D8%A7%D8%B1%20%D8%B4%D9%85%D8%A7%20%2B%20%D8%A8%D9%87%DB%8C%D9%86%D9%87%20%D8%AA%D8%B1%DB%8C%D9%86%20%D8%B1%D9%88%D8%B4%20%D8%A7%D8%AA%D8%B5%D8%A7%D9%84%20%D8%A8%D8%A7%20%D9%BE%D8%B1%D9%88%D8%AA%DA%A9%D9%84%20DNS%E2%81%89%EF%B8%8F.mp4)**
+
+
 ### 📅 2026-04-28 12:13 (IR Time)
 - 📥 **[hiddify-config.zip](https://github.com/mhmdparsadaraby-dot/0x00-dl/raw/main/dl/hiddify-config.zip)**
 
